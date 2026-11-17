@@ -119,4 +119,4 @@ For enquiries, permissions, feedback or support:
 ---
 
 ### LOCK IN
-*The work is your own.*
+*Plan. Track. Achieve.*
